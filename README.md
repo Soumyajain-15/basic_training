@@ -1,1 +1,0 @@
-Basic Training Solution Submissions
